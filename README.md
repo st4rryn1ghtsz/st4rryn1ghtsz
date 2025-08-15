@@ -1,4 +1,4 @@
-<img width="1783" height="1527" alt="Image" src="https://github.com/user-attachments/assets/7580379f-ceb0-4cf5-bc5e-9edf91f2defa" />
+<img width="1783" height="1527" alt="Image" src="https://github.com/user-attachments/assets/62ace25a-aa15-4650-9300-2ab1d01bd0c6" />
 
 # Hio  ;! 
 > this is an extended intro yay! 
