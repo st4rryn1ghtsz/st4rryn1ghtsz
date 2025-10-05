@@ -15,3 +15,5 @@ __  __ PLS DO NOT SEXUALIZE ME IN ANY WAY ! . __ __ __ __
 __ HI SORA , SQUISH , BLOXXY , FRUIT , WOOL , SKETZ , SAPPH , NYX , HUNGER , WYNN , DIVINE , REZA , STAR , LOVRY + OTHERS !! 
 
 __  __ I REALLY LIKE : LIFESTEAL SMP , UNSTABLE SMP , STATE SMP , FORSAKEN , ITZSKEET_PLAYZ ARG , OSC , DW , AN MORE !!! 
+
+<img width="2182" height="1368" alt="Image" src="https://github.com/user-attachments/assets/2f58d6df-5e57-47c2-b892-0f800dde2972" />
